@@ -42,4 +42,7 @@ cold/warm take; if you cyberbully people for literally no odd reasons at all, yo
 
 cold/warm take; if youre being cyberbullied and wont just block them on every social media they have, youre a dumbass.
 
+boiling take; if you dont expect death threats when youre a dark/proshipper, post videos about it which is very obvious and be over dramatic/sensitive when u do get one, youre generally stupid. what do you expect..
+
+
 ill update this later.
