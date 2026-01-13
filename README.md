@@ -44,4 +44,9 @@ cold/warm take; if youre being cyberbullied and wont just block them on every so
 
 boiling take; if you dont expect death threats when youre a dark/proshipper, post videos about it which is very obvious and be over dramatic/sensitive when u do get one, youre generally stupid. what do you expect..
 
+hot take; most of the tiktok community is overly sensitive and a bitch.
+
+hot take; the cockroach raping machine is not that serious. the roach itself does not have hole like us humans.
+
+hot take; people (tiktok people) go insane if you say an actual hot take.
 ill update this later.
