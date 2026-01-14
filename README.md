@@ -49,4 +49,5 @@ hot take; most of the tiktok community is overly sensitive and a bitch.
 hot take; the cockroach raping machine is not that serious. the roach itself does not have hole like us humans.
 
 hot take; people (tiktok people) go insane if you say an actual hot take.
+
 ill update this later.
